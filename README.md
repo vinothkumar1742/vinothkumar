@@ -6,5 +6,5 @@
 
 👉you can reach me @ vinothkumar1742@gmail.com
 
-being as a collabrator in @sloopstash
+being as a collabrator in @sloopstash 👉https://github.com/sloopstash
 
